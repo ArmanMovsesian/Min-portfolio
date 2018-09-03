@@ -1,1 +1,1 @@
-# Min-portfolio
+Jag heter Arman och är 18 år och pluggar i Stoockholm Science & Innovations School med inriktningen medieteknik och datorvetenskap. Jag har flera års jobb erfarenhet och har jobbat inom flertals områden allt från trädgård och natur till äldreomsorg och  personlig assistans. I Wiki filen kan du läsa mer om mina erfarenheter och nuvarande anställningar.
